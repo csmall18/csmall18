@@ -1,7 +1,5 @@
 - 👋 Hi, I’m Cameron
-- 👀 I’m interested in sustainability
-- 📫 How to reach me
-email: cdsguy7@gmail.com
-LinkedIn: https://www.linkedin.com/in/cameron-small-116129175/
-cell: 646-591-4033
-
+- I’m interested in pursuing the sustainability industry as an electrical engineer
+- 📫 Here's how to reach me
+- E-mail: cdsguy7@gmail.com (best method of contact)
+- LinkedIn: https://www.linkedin.com/in/cameron-small-116129175/
