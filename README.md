@@ -1,5 +1,4 @@
 - 👋 Hi, I’m Cameron
 - I’m interested in pursuing the sustainability industry as an electrical engineer
-- 📫 Here's how to reach me
 - E-mail: cameron.small98@gmail.com (best method of contact)
 - LinkedIn: https://www.linkedin.com/in/cameron-small-116129175/
